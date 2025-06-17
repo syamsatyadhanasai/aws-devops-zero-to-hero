@@ -183,3 +183,21 @@ On the final day, you'll review best practices for AWS services, including secur
 
 ## Day 30: AWS Project with RDS
 
+
+
+
+[https://amex.webex.com/amex/ldr.php?RCID=8ce4e8858a444f72a2ba24d6d41b63d5]
+https://amex.webex.com/amex/ldr.php?RCID=8ce4e8858a444f72a2ba24d6d41b63d5
+https://amex.webex.com/amex/ldr.php?RCID=5808e7915b11caa8c9ecafd37fcd9a2d
+https://amex.webex.com/amex/ldr.php?RCID=29d5a7e7a61f326edc6b1bc81ec2034a
+https://amex.webex.com/amex/ldr.php?RCID=a7b54cfba11732ed9b2e9c4c13b1e239
+https://amex.webex.com/amex/ldr.php?RCID=98bdea8076353a00f5599033e5e4a09f
+https://amex.webex.com/amex/ldr.php?RCID=97f504002ec4e1b0a121c30911bc2723
+https://amextraining.webex.com/recordingservice/sites/amextraining/recording/playback/3cb5fb481ed0103ebffbd23450a2dea9
+Recording password: 862Bqd4@
+https://amextraining.webex.com/amextraining/ldr.php?RCID=fbaadbdc8a7028011d734f156c8fbcf7
+Recording Password: Ngmjr3w@
+https://amextraining.webex.com/recordingservice/sites/amextraining/recording/playback/386ddbd92450103ebedeb6a7763d46cc
+Recording Password: 7PjKz7m*
+https://amextraining.webex.com/recordingservice/sites/amextraining/recording/playback/fc3fcf882774103ea57bdabbd4421623
+Recording Password: qKiu2z2@
